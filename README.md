@@ -1,1 +1,1 @@
-https://cv2.buzz/link/mzo9FulWtAiK7XSE?sub=3&extend=1
+https://client-sub-dom.we-love-china.com/link/NuUjSwcCub0pgUCx?sub=3
