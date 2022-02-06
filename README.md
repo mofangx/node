@@ -1,1 +1,1 @@
-https://client-sub-dom.we-love-china.com/link/NuUjSwcCub0pgUCx?sub=3
+https://suburl.aaxcpro.xyz/link/LfzcNSx8EY0HNDgV?sub=3&extend=1
