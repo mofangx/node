@@ -1,5 +1,4 @@
-Aax https://suburl.aaxcpro.xyz/link/GpvN9XCHx1YKN32H?sub=3&extend=1
+Aax https://suburl.aaxcpro.xyz/link/KTQLoDfuAvkGoqnT?sub=3&extend=1
 Cheap https://cv2.buzz/link/DMVFhFPkrTSAf5XT?sub=3&extend=1
 FETV https://de1.foreign-expat-tv.win/link/vqbff6fjXIbmkQni?sub=3
 Pork https://client-sub-dom.we-love-china.com/link/pIMztWCtfwsqaiC1?sub=3
-https://suburl.aaxcpro.xyz/link/usFrjjEiuWbUE9FL?sub=3&extend=1
