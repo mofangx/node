@@ -1,1 +1,1 @@
-https://hare.click/link/qc7EFsFYB0kRRbOQ?sub=3
+https://xmrth-subscribe.xyz/link/ObXZx7HZT3moeBYH?sub=3&extend=1
