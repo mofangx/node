@@ -1,1 +1,1 @@
-https://xmrth-subscribe.xyz/link/ObXZx7HZT3moeBYH?sub=3&extend=1
+https://xmrth-subscribe.xyz/link/XtPlWBStnukTNH8S?sub=3&extend=1
