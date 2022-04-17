@@ -1,1 +1,1 @@
-https://xmrth-subscribe.xyz/link/XtPlWBStnukTNH8S?sub=3&extend=1
+https://proxies.bihai.cf/vmess/sub?c=CN,HK,TW,JP
