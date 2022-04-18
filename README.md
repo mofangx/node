@@ -1,1 +1,1 @@
-https://proxies.bihai.cf/vmess/sub?c=CN,HK,TW,JP
+https://raw.fastgit.org/freefq/free/master/v2
